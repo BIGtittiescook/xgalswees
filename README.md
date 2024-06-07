@@ -1,6 +1,6 @@
  👋
  genshin uid: 741630803
- hsr uid: 700655246 
+![huohuo-honkai-star-rail](https://github.com/xgalswees/xgalswees/assets/166125649/1ce7530f-9f54-4896-9429-a0023b722129) hsr uid: 700655246 
 
 любите орфея и паскаля любите пасфеев любите пасфеев любите пасфеев
 ![De6ycgq_FU0](https://github.com/xgalswees/xgalswees/assets/166125649/1a63eaee-c5e7-48e2-9067-d562dea26108)
