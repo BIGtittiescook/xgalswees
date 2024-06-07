@@ -2,13 +2,14 @@
  genshin uid: 741630803
 ![huohuo-honkai-star-rail](https://github.com/xgalswees/xgalswees/assets/166125649/1ce7530f-9f54-4896-9429-a0023b722129) hsr uid: 700655246 
 
-![star](https://github.com/xgalswees/xgalswees/assets/166125649/5dbb6ff7-6b07-4016-8a0b-d4b48971aa0b) ![star](https://github.com/xgalswees/xgalswees/assets/166125649/5dbb6ff7-6b07-4016-8a0b-d4b48971aa0b)
+
 
 любите орфея и паскаля любите пасфеев любите пасфеев любите пасфеев
 ![De6ycgq_FU0](https://github.com/xgalswees/xgalswees/assets/166125649/1a63eaee-c5e7-48e2-9067-d562dea26108)
 ![gxJ0uUahSh8](https://github.com/xgalswees/xgalswees/assets/166125649/7b6c6023-60d2-45eb-8e7b-8a937f701c9b)
-![star](https://github.com/xgalswees/xgalswees/assets/166125649/5dbb6ff7-6b07-4016-8a0b-d4b48971aa0b) ![star](https://github.com/xgalswees/xgalswees/assets/166125649/5dbb6ff7-6b07-4016-8a0b-d4b48971aa0b)
+![rainbow](https://github.com/xgalswees/xgalswees/assets/166125649/d1e35e48-f716-4a78-b55f-88c42b056a6f)![rainbow](https://github.com/xgalswees/xgalswees/assets/166125649/d1e35e48-f716-4a78-b55f-88c42b056a6f)
 ![Скриншот 07 06 24_19 52 45](https://github.com/xgalswees/xgalswees/assets/166125649/1f9f8be5-9306-4595-9b99-76dd0cc77bf5)
+![rainbow](https://github.com/xgalswees/xgalswees/assets/166125649/d1e35e48-f716-4a78-b55f-88c42b056a6f) ![rainbow](https://github.com/xgalswees/xgalswees/assets/166125649/d1e35e48-f716-4a78-b55f-88c42b056a6f)
 
 ![h1CxecbA7iE](https://github.com/xgalswees/xgalswees/assets/166125649/07857aa0-ccc8-4e31-a2f8-858d305285b0)
 ![nCnS3MgDIiw](https://github.com/xgalswees/xgalswees/assets/166125649/b79991d0-16bb-45ae-950c-b928afceea4d)
