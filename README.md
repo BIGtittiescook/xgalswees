@@ -12,7 +12,8 @@
 ![rainbow](https://github.com/xgalswees/xgalswees/assets/166125649/d1e35e48-f716-4a78-b55f-88c42b056a6f) ![rainbow](https://github.com/xgalswees/xgalswees/assets/166125649/d1e35e48-f716-4a78-b55f-88c42b056a6f) 
 
 ![h1CxecbA7iE](https://github.com/xgalswees/xgalswees/assets/166125649/07857aa0-ccc8-4e31-a2f8-858d305285b0)![nCnS3MgDIiw](https://github.com/xgalswees/xgalswees/assets/166125649/b79991d0-16bb-45ae-950c-b928afceea4d) 
-![clorinde-navia](https://github.com/xgalswees/xgalswees/assets/166125649/2d66078b-acf0-4925-9fa1-aac1d5246bbd)![genshin-impact-furina](https://github.com/xgalswees/xgalswees/assets/166125649/6b531abc-9e02-458e-95b3-e7498fe474aa)
+![clorinde-navia](https://github.com/xgalswees/xgalswees/assets/166125649/2d66078b-acf0-4925-9fa1-aac1d5246bbd)![genshin-impact-furina](https://github.com/xgalswees/xgalswees/assets/166125649/6b531abc-9e02-458e-95b3-e7498fe474aa)![faruzan-tcg](https://github.com/xgalswees/xgalswees/assets/166125649/ced45bc3-c8b3-4bc8-9688-f6f6487a64a9)
+
 ![ace-attorney-courtoom-reacts](https://github.com/xgalswees/xgalswees/assets/166125649/e2e395c3-f378-480d-8852-fc7a2da17dc4)
 ![saimota-danganr![kaveh-al-haitham](https://github.com/xgalswees/xgalswees/assets/166125649/35f49ed9-9e1c-4099-b86f-e730a370fe28)
 onpa-v3](https://github.com/xgalswees/xgalswees/assets/166125649/2555938b-f672-448c-b8a6-04b0852899f3)![honkai-honkai-star-rail](https://github.com/xgalswees/xgalswees/assets/166125649/ba9496b4-4518-4c8a-a342-5a6fbad0e979) ![ezgif com-animated-gif-maker (1)](https://github.com/xgalswees/xgalswees/assets/166125649/9eb1f2e3-357e-416b-bdcd-243d622d9153)![kaveh-al-haitham](https://github.com/xgalswees/xgalswees/assets/166125649/eb3792f3-0863-4215-a7be-7cb0f9e0f964)![haikaveh-hailou](https://github.com/xgalswees/xgalswees/assets/166125649/392b16a1-f5b3-46ed-8bd7-6a9933546ff7)
