@@ -1,4 +1,5 @@
-ㅤㅤㅤㅤ ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![c2cf0362e1f8792fd527f83edbf3c5e7](https://github.com/xgalswees/xgalswees/assets/166125649/6d91d1c5-ec98-45c3-bb64-a356c76d3fed)
+ㅤㅤㅤㅤ ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![aesthetic-anime](https://github.com/xgalswees/xgalswees/assets/166125649/e075a335-54bc-4f95-a260-902c0f72ca8d)
+
 ㅤㅤㅤㅤㅤㅤㅤ ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![c40db678aa354ba91257f6258a1521e1](https://github.com/xgalswees/xgalswees/assets/166125649/b9441171-3727-4afc-bdfd-cdae1a34d417)
