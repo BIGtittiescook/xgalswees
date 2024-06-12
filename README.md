@@ -13,8 +13,9 @@
 ![De6ycgq_FU0](https://github.com/xgalswees/xgalswees/assets/166125649/1a63eaee-c5e7-48e2-9067-d562dea26108)
 ![Скриншот 07 06 24_19 52 45](https://github.com/xgalswees/xgalswees/assets/166125649/1f9f8be5-9306-4595-9b99-76dd0cc77bf5)
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![24a1b8774a35ca8a2c0835df90c9d631](https://github.com/xgalswees/xgalswees/assets/166125649/216009c8-967b-443a-9b8f-adb70d75d568)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
+![a915468660807058f3e141b23e1944cf](https://github.com/xgalswees/xgalswees/assets/166125649/ab99d614-8383-4b0d-81c6-be0db08aad3a)
 
 
 
