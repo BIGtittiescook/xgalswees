@@ -28,6 +28,7 @@
 onpa-v3](https://github.com/xgalswees/xgalswees/assets/166125649/2555938b-f672-448c-b8a6-04b0852899f3)![honkai-honkai-star-rail](https://github.com/xgalswees/xgalswees/assets/166125649/ba9496b4-4518-4c8a-a342-5a6fbad0e979) ![ezgif com-animated-gif-maker (1)](https://github.com/xgalswees/xgalswees/assets/166125649/9eb1f2e3-357e-416b-bdcd-243d622d9153)![kaveh-al-haitham](https://github.com/xgalswees/xgalswees/assets/166125649/eb3792f3-0863-4215-a7be-7cb0f9e0f964)![haikaveh-hailou](https://github.com/xgalswees/xgalswees/assets/166125649/392b16a1-f5b3-46ed-8bd7-6a9933546ff7)
 ![ratiorine-raturine](https://github.com/xgalswees/xgalswees/assets/166125649/9b94764e-d35a-451b-a7f2-c7da737a53e1)![omori-kel](https://github.com/xgalswees/xgalswees/assets/166125649/a46e770b-942c-4689-b142-9f25d0a2c8cc)
 ![good-night-pookie-bear](https://github.com/xgalswees/xgalswees/assets/166125649/6e323b6f-43c3-4000-9324-43ea1bbb7761)![serval-honkai](https://github.com/xgalswees/xgalswees/assets/166125649/d037bfa3-fce2-4add-985a-c5573fffb37b)
+![82ccc62ece8f1d3ae55e81346bc59ded](https://github.com/xgalswees/xgalswees/assets/166125649/f0d04532-5f08-45bf-b0b2-27cd419b0476)
 
-![rainbow](https://github.com/xgalswees/xgalswees/assets/166125649/d1e35e48-f716-4a78-b55f-88c42b056a6f) ![rainbow](https://github.com/xgalswees/xgalswees/assets/166125649/d1e35e48-f716-4a78-b55f-88c42b056a6f) ![kaveh-itayuwuji](https://github.com/xgalswees/xgalswees/assets/166125649/39797318-0d29-4e30-854d-33018d21abec)
+![b657750ab707449576583131f797266c](https://github.com/xgalswees/xgalswees/assets/166125649/9dae49c9-a657-4233-b0b4-6ee100501265)
 
