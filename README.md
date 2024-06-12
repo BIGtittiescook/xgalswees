@@ -27,7 +27,8 @@
 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ                                 ㅤㅤㅤ       ㅤㅤㅤ                 ˗ˋˏ ♡ ˎˊ˗
     ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ   ㅤ  ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ      ㅤㅤㅤ***люблю алену!***
-    ![4abfe16c992c1aa1ff1173534610c5c5](https://github.com/xgalswees/xgalswees/assets/166125649/61f5994b-d52a-4a1d-9eb5-49cd7bbe90cc)
+    
+        ㅤㅤㅤ        ㅤ       ㅤㅤㅤ          ㅤㅤㅤ        ㅤ       ㅤㅤㅤ      ![4abfe16c992c1aa1ff1173534610c5c5](https://github.com/xgalswees/xgalswees/assets/166125649/61f5994b-d52a-4a1d-9eb5-49cd7bbe90cc)
 
 
 ㅤㅤㅤㅤㅤㅤㅤ ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤㅤㅤㅤㅤㅤㅤ![aesthetic-anime](https://github.com/xgalswees/xgalswees/assets/166125649/e075a335-54bc-4f95-a260-902c0f72ca8d)ㅤㅤㅤㅤㅤㅤㅤ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤ
