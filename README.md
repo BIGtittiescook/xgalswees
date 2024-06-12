@@ -1,6 +1,8 @@
- 🥪
+ ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156)
+
  genshin uid: 741630803
-![huohuo-honkai-star-rail](https://github.com/xgalswees/xgalswees/assets/166125649/1ce7530f-9f54-4896-9429-a0023b722129) 🌮hsr uid: 700655246 
+![huohuo-honkai-star-rail](https://github.com/xgalswees/xgalswees/assets/166125649/1ce7530f-9f54-4896-9429-a0023b722129) ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/9c327f81-e7fd-4fc5-a0b6-9d9f989d14dd)
+hsr uid: 700655246 
 
 
 
