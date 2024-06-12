@@ -13,12 +13,12 @@
 ![De6ycgq_FU0](https://github.com/xgalswees/xgalswees/assets/166125649/1a63eaee-c5e7-48e2-9067-d562dea26108)
 ![rainbow](https://github.com/xgalswees/xgalswees/assets/166125649/d1e35e48-f716-4a78-b55f-88c42b056a6f)![rainbow](https://github.com/xgalswees/xgalswees/assets/166125649/d1e35e48-f716-4a78-b55f-88c42b056a6f) 
 ![Скриншот 07 06 24_19 52 45](https://github.com/xgalswees/xgalswees/assets/166125649/1f9f8be5-9306-4595-9b99-76dd0cc77bf5)
-![b5ee418476f15948781dd5ee265b0f03](https://github.com/xgalswees/xgalswees/assets/166125649/28f832cf-8dff-41e1-81c6-7eddaba3f711)
-f)
+
 
 ![h1CxecbA7iE](https://github.com/xgalswees/xgalswees/assets/166125649/07857aa0-ccc8-4e31-a2f8-858d305285b0)![nCnS3MgDIiw](https://github.com/xgalswees/xgalswees/assets/166125649/b79991d0-16bb-45ae-950c-b928afceea4d) 
 ![clorinde-navia](https://github.com/xgalswees/xgalswees/assets/166125649/2d66078b-acf0-4925-9fa1-aac1d5246bbd)![tcg-genshin-razor](https://github.com/xgalswees/xgalswees/assets/166125649/21444f2b-1a03-45a8-a16f-fbe6c994bb0d)
 ![kuki-shinobu-genshin](https://github.com/xgalswees/xgalswees/assets/166125649/9f5eda87-12bd-450e-9e92-756136337151)![faruzan-tcg](https://github.com/xgalswees/xgalswees/assets/166125649/ced45bc3-c8b3-4bc8-9688-f6f6487a64a9)![lyney-demo](https://github.com/xgalswees/xgalswees/assets/166125649/328bef9b-1b56-470d-81a5-c7e57c0e8649)!![mob-mob-psycho100](https://github.com/xgalswees/xgalswees/assets/166125649/49a608fb-26e9-4e19-ad6d-00d54b74d94a)
+![0702314ceb88b3b2272976a6f3d9b506](https://github.com/xgalswees/xgalswees/assets/166125649/ed9d063b-3bd7-4b11-8bf8-2fa00f02d295)
 
 
 
