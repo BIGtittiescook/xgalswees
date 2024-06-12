@@ -1,6 +1,4 @@
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![star (1)](https://github.com/xg![aesthetic-anime](https://github.com/xgalswees/xgalswees/assets/166125649/a6b3dfed-1f6d-4913-a2e6-169a1927f54f)
-alswees/xgalswees/assets/166125649/c30e5046-2947-4baa-b460-59ee89b5ab64)
 genshin uid:741630803
 
 ![huohuo-honkai-star-rail](https://github.com/xgalswees/xgalswees/assets/166125649/1ce7530f-9f54-4896-9429-a0023b722129)
