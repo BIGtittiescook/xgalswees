@@ -13,10 +13,10 @@
 ![De6ycgq_FU0](https://github.com/xgalswees/xgalswees/assets/166125649/1a63eaee-c5e7-48e2-9067-d562dea26108)
 ![Скриншот 07 06 24_19 52 45](https://github.com/xgalswees/xgalswees/assets/166125649/1f9f8be5-9306-4595-9b99-76dd0cc77bf5)
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![24a1b8774a35ca8a2c0835df90c9d631](https://github.com/xgalswees/xgalswees/assets/166125649/216009c8-967b-443a-9b8f-adb70d75d568)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![24a1b8774a35ca8a2c0835df90c9d631](https://github.com/xgalswees/xgalswees/assets/166125649/216009c8-967b-443a-9b8f-adb70d75d568)
 
 
-![82ccc62ece8f1d3ae55e81346bc59ded](https://github.com/xgalswees/xgalswees/assets/166125649/f0d04532-5f08-45bf-b0b2-27cd419b0476)
+
 
 ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤㅤㅤㅤㅤㅤㅤ![aesthetic-anime](https://github.com/xgalswees/xgalswees/assets/166125649/e075a335-54bc-4f95-a260-902c0f72ca8d)ㅤㅤㅤㅤㅤㅤㅤ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤ
 
