@@ -8,7 +8,8 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ+； ˖ , ,‎ фандомы за которые шарю:
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤace attorney, TAWOG, mob psycho, genshin impcat> steven universe,
+  ㅤㅤㅤㅤㅤㅤㅤㅤ
+  ㅤace attorney, TAWOG, mob psycho, genshin impcat> steven universe,
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhsr, genshin impact, undertale, sally face, sk8, jujutsu kaisen,
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤomori, trigun stampede. yttd, death note, detroit: become humanㅤㅤㅤㅤㅤ  
 
