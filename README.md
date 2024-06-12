@@ -1,6 +1,8 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![aesthetic-anime](https://github.com/xgalswees/xgalswees/assets/166125649/b1e5c638-ecac-4f46-9d44-d0e0f1f9da0e)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![stars-transparent](https://github.com/xgalswees/xgalswees/assets/166125649/ef603b1e-298d-4869-8e6a-97bb13781f75)
 
-genshin uid:741630803 ![moon-ramadhan](https://github.com/xgalswees/xgalswees/assets/166125649/c9d63fdc-e63f-4bbe-8975-03c2f7186d1b)
+
+genshin uid:741630803 ![yttd-your-turn-to-die](https://github.com/xgalswees/xgalswees/assets/166125649/75bd4fe1-8d99-4d94-a11e-05f6813ecd1b)
+
  hsr uid:700655246 
 
 
