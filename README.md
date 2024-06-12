@@ -7,7 +7,7 @@
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/84b163d7-c652-4982-9b42-fdc22271a94c)genshin uid: 741630803ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/84b163d7-c652-4982-9b42-fdc22271a94c)hsr uid: 700655246 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ； ˖ , ,‎ фандомы за которые шарю:
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ+； ˖ , ,‎ фандомы за которые шарю:
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤace attorney, TAWOG, mob psycho, genshin impcat> steven universe,
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhsr, genshin impact, undertale, sally face, sk8, jujutsu kaisen,
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤomori, trigun stampede. yttd, death note, detroit: become humanㅤㅤㅤㅤㅤ  
