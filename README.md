@@ -7,10 +7,10 @@
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/84b163d7-c652-4982-9b42-fdc22271a94c)genshin uid: 741630803ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/84b163d7-c652-4982-9b42-fdc22271a94c)hsr uid: 700655246 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ； ˖ , ,‎ фандомы за которые шарю:
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤace attorney, TAWOG, mob psycho, genshin impcat> steven universe,
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhsr, genshin impact, undertale, sally face, sk8, jujutsu kaisen,
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤomori, trigun stampede. yttd, death note, detroit: become humanㅤㅤㅤㅤㅤ  
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ； ˖ , ,‎ фандомы за которые шарю:
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤace attorney, TAWOG, mob psycho, genshin impcat> steven universe,
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhsr, genshin impact, undertale, sally face, sk8, jujutsu kaisen,
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤomori, trigun stampede. yttd, death note, detroit: become humanㅤㅤㅤㅤㅤ  
 
 
 
