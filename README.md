@@ -11,13 +11,9 @@
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![shin-ai-dance-shin-ai](https://github.com/xgalswees/xgalswees/assets/166125649/538f16c1-5f7e-4fb3-ac57-b8894cd0310d)любите орфея и паскаля любите пасфеев любите пасфеев любите пасфеев![shin-ai-dance-shin-ai](https://github.com/xgalswees/xgalswees/assets/166125649/538f16c1-5f7e-4fb3-ac57-b8894cd0310d)
 
 ![De6ycgq_FU0](https://github.com/xgalswees/xgalswees/assets/166125649/1a63eaee-c5e7-48e2-9067-d562dea26108)
-ㅤㅤㅤㅤㅤㅤㅤ 
-
-
-
 ![Скриншот 07 06 24_19 52 45](https://github.com/xgalswees/xgalswees/assets/166125649/1f9f8be5-9306-4595-9b99-76dd0cc77bf5)
-    ![5404f3677bb50175869ba8967bc7ce74](https://github.com/xgalswees/xgalswees/assets/166125649/3adb7b37-f542-4892-829a-15ab15d79a28)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![24a1b8774a35ca8a2c0835df90c9d631](https://github.com/xgalswees/xgalswees/assets/166125649/216009c8-967b-443a-9b8f-adb70d75d568)
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![5404f3677bb50175869ba8967bc7ce74](https://github.com/xgalswees/xgalswees/assets/166125649/3adb7b37-f542-4892-829a-15ab15d79a28)
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![24a1b8774a35ca8a2c0835df90c9d631](https://github.com/xgalswees/xgalswees/assets/166125649/216009c8-967b-443a-9b8f-adb70d75d568)
 
 
 ![h1CxecbA7iE](https://github.com/xgalswees/xgalswees/assets/166125649/07857aa0-ccc8-4e31-a2f8-858d305285b0)![nCnS3MgDIiw](https://github.com/xgalswees/xgalswees/assets/166125649/b79991d0-16bb-45ae-950c-b928afceea4d) 
