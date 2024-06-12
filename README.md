@@ -11,7 +11,7 @@
   ㅤㅤㅤㅤㅤㅤㅤㅤ
       ㅤ      ㅤ          ㅤ          ㅤ          ㅤ                ㅤ    
       ㅤ                ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ace attorney, TAWOG, mob psycho, genshin impact. steven universe,  ㅤㅤㅤㅤㅤ     ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ       ㅤ                ㅤ          ㅤ          ㅤ          ㅤ   hsr, genshin impact, undertale, sally face, sk8, jujutsu kaisen,
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤomori, trigun stampede. yttd, death note, detroit: become humanㅤ+； ˖ , ,‎ㅤㅤㅤㅤㅤ  
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤomori, trigun stampede. yttd, death note, detroit: become humanㅤ+； ˖ , ,‎ㅤㅤㅤㅤㅤ  
 
 
 
