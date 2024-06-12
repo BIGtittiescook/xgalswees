@@ -1,5 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![aesthetic-anime](https://github.com/xgalswees/xgalswees/assets/166125649/b1e5c638-ecac-4f46-9d44-d0e0f1f9da0e)
-genshin uid:741630803![moon-ramadhan](https://github.com/xgalswees/xgalswees/assets/166125649/c9d63fdc-e63f-4bbe-8975-03c2f7186d1b)
+
+genshin uid:741630803 ![moon-ramadhan](https://github.com/xgalswees/xgalswees/assets/166125649/c9d63fdc-e63f-4bbe-8975-03c2f7186d1b)
  hsr uid:700655246 
 
 
