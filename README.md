@@ -13,7 +13,7 @@
 ![De6ycgq_FU0](https://github.com/xgalswees/xgalswees/assets/166125649/1a63eaee-c5e7-48e2-9067-d562dea26108)
 ![rainbow](https://github.com/xgalswees/xgalswees/assets/166125649/d1e35e48-f716-4a78-b55f-88c42b056a6f)![rainbow](https://github.com/xgalswees/xgalswees/assets/166125649/d1e35e48-f716-4a78-b55f-88c42b056a6f) 
 ![Скриншот 07 06 24_19 52 45](https://github.com/xgalswees/xgalswees/assets/166125649/1f9f8be5-9306-4595-9b99-76dd0cc77bf5)
-![c2241b6f04f015265405b9ab5fa2e5b5](https://github.com/xgalswees/xgalswees/assets/166125649/0dc3a163-a336-4f1a-9e51-c796347f24a4)
+![24a1b8774a35ca8a2c0835df90c9d631](https://github.com/xgalswees/xgalswees/assets/166125649/216009c8-967b-443a-9b8f-adb70d75d568)
 
 
 ![h1CxecbA7iE](https://github.com/xgalswees/xgalswees/assets/166125649/07857aa0-ccc8-4e31-a2f8-858d305285b0)![nCnS3MgDIiw](https://github.com/xgalswees/xgalswees/assets/166125649/b79991d0-16bb-45ae-950c-b928afceea4d) 
