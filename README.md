@@ -24,8 +24,8 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![a915468660807058f3e141b23e1944cf](https://github.com/xgalswees/xgalswees/assets/166125649/ab99d614-8383-4b0d-81c6-be0db08aad3a)
-  `⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆`
-  люблю алену!
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ `⋆ ˚｡⋆୨♡୧⋆ ˚｡⋆`
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ люблю алену!
    ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ    ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ   ![Скриншот 13 06 24_02 47 32](https://github.com/xgalswees/xgalswees/assets/166125649/a0ecb26e-9631-47f9-9645-dee1531134fd)
 
 ㅤㅤㅤㅤㅤㅤㅤ ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤㅤㅤㅤㅤㅤㅤ![aesthetic-anime](https://github.com/xgalswees/xgalswees/assets/166125649/e075a335-54bc-4f95-a260-902c0f72ca8d)ㅤㅤㅤㅤㅤㅤㅤ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤ
