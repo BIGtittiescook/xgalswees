@@ -27,7 +27,24 @@
 
 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ                                 ㅤㅤㅤ       ㅤㅤㅤ                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          `˗ˋˏ ♡ ˎˊ˗`
-        ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ   ㅤ  ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ          ㅤ   ㅤ  ㅤㅤㅤ       ㅤㅤㅤ  ===================== ***люблю алену!***
+        ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ       ㅤㅤㅤ        ㅤ   ㅤ  ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ          ㅤ   ㅤ  ㅤㅤㅤ       ㅤㅤㅤfrom characters_3w import *
+
+
+def display(msg, hor_scale=1, ver_scale=1, space_char=' ', true_char='█', false_char=' ', absent_char='!'):
+    for h in range(height):
+        for x in range(ver_scale):
+            for ch in msg:
+                for line in chars.get(ch, [['!']] * height)[h]:
+                    for big_chr in line:
+                        for y in range(hor_scale):
+                            if big_chr == '!':
+                                print(absent_char, end='')
+                            elif big_chr == ' ' or big_chr == '0':
+                                print(false_char, end='')
+                            else:
+                                print(true_char, end='')
+                print(space_char, end='')
+            print()***люблю алену!***
     
    ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ    ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ   ![Скриншот 13 06 24_02 47 32](https://github.com/xgalswees/xgalswees/assets/166125649/a0ecb26e-9631-47f9-9645-dee1531134fd)
 
