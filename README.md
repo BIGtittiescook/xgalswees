@@ -12,7 +12,7 @@
       ㅤ      ㅤ          ㅤ          ㅤ          ㅤ                ㅤ    
       ㅤ                ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          `ace attorney, TAWOG, mob psycho, genshin impact. steven universe,`  ㅤㅤㅤㅤㅤ     ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ       ㅤ                ㅤ          ㅤ          ㅤ        `hsr, danganronpa, undertale, sally face, sk8, jujutsu kaisen,`
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`omori, trigun stampede. yttd, death note, detroit: become human`+； ˖ , ,‎ㅤㅤㅤㅤㅤ  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ `she-ra, fran bow, ru twitch, until dawn, the quarry`
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ  ㅤㅤㅤ`she-ra, fran bow, ru twitch, until dawn, the quarry`
 
 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![shin-ai-dance-shin-ai](https://github.com/xgalswees/xgalswees/assets/166125649/538f16c1-5f7e-4fb3-ac57-b8894cd0310d)***любите орфея и паскаля любите пасфеев любите пасфеев любите пасфеев***![shin-ai-dance-shin-ai](https://github.com/xgalswees/xgalswees/assets/166125649/538f16c1-5f7e-4fb3-ac57-b8894cd0310d)
