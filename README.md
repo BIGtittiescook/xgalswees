@@ -1,6 +1,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![c0b824e8a635ffe2025311450bc6b64e](https://github.com/xgalswees/xgalswees/assets/166125649/ce80d11c-1935-4ed7-b610-6fccdcc52913)
 ㅤㅤㅤㅤㅤㅤ ㅤ
-![wow-comic](https://github.com/xgalswees/xgalswees/assets/166125649/42c2020f-c242-4356-b4b1-02761550d5a2).° ༘🎧⋆🖇₊˚ෆ +； ˖ , ,‎ `фандомы за которые шарю:`
+![wow-comic](https://github.com/xgalswees/xgalswees/assets/166125649/42c2020f-c242-4356-b4b1-02761550d5a2)![9256164d0b21fb0512c354f9f3b27d67 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/f74d432b-12db-44b5-910b-71504bd9df2f)
+  .° ༘🎧⋆🖇₊˚ෆ +； ˖ , ,‎ `фандомы за которые шарю:`
   ㅤㅤㅤㅤㅤㅤㅤㅤ
       ㅤ      ㅤ          ㅤ          ㅤ          ㅤ                ㅤ    
       ㅤ                ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          `ace attorney, TAWOG, mob psycho, genshin impact. steven universe,`  ㅤㅤㅤㅤㅤ     ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ       ㅤ                ㅤ          ㅤ          ㅤ        `hsr, danganronpa, undertale, sally face, sk8, jujutsu kaisen,`
