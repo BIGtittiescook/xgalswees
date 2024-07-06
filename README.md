@@ -8,7 +8,9 @@
       ㅤ                ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          `ace attorney, TAWOG, mob psycho, genshin impact. steven universe,`  ㅤㅤㅤㅤㅤ     ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ       ㅤ                ㅤ          ㅤ          ㅤ        `hsr, danganronpa, undertale, sally face, sk8, jujutsu kaisen,`
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`omori, trigun stampede. yttd, death note, detroit: become human`+； ˖ , ,‎ㅤㅤㅤㅤㅤ  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ`she-ra, fran bow, ru twitch, until dawn, the quarry`
-![5a105381eed609b127ec423c337f64e3 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/fd5771bf-ac35-4198-b89e-a217d8c4876a)
+
+
+![5a105381eed609b127ec423c337f64e3 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/dfaf961b-4f8e-4e35-bd0f-cd028fe8c2d3)
 
 
 
