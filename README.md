@@ -1,6 +1,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![dae36a74337de05e249ce5afcec907c1 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/928f2789-cf56-4624-b854-f3ca94f9f93a)
 ㅤㅤㅤㅤㅤㅤ ㅤ
-(https://github.com/xgalswees/xgalswees/assets/166125649/f74d432b-12db-44b5-910b-71504bd9df2f)
+![9256164d0b21fb0512c354f9f3b27d67 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/5a93a273-bc43-4d33-ae87-c3b9bff408e1)
+
   .° ༘🎧⋆🖇₊˚ෆ +； ˖ , ,‎ `фандомы за которые шарю:`
   ㅤㅤㅤㅤㅤㅤㅤㅤ
       ㅤ      ㅤ          ㅤ          ㅤ          ㅤ                ㅤ    
