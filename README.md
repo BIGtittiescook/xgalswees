@@ -1,8 +1,10 @@
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ![c0b824e8a635ffe2025311450bc6b64e](https://github.com/xgalswees/xgalswees/assets/166125649/e32fb0db-5e2d-4223-8e90-16437784d6cc)
 
 
-ㅤ**hsr uid: 700655246**ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-  **genshin uid: 741630803**ㅤ               ![comic-text-crack](https://github.com/xgalswees/xgalswees/assets/166125649/d9fd1574-0fb8-477a-8b50-8bf142c5bea5)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+  ㅤ               ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ![comic-text-crack](https://github.com/xgalswees/xgalswees/assets/166125649/d9fd1574-0fb8-477a-8b50-8bf142c5bea5)
+ㅤㅤ**hsr uid: 700655246**ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+  **genshin uid: 741630803**ㅤ              
 ㅤ**zzz uid: 1500623267**  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
 ㅤㅤㅤㅤㅤ
