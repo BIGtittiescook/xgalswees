@@ -18,7 +18,8 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ        ㅤ         ㅤ ㅤㅤㅤ        ㅤ         ㅤ         ㅤ       ㅤㅤㅤㅤ
-![zenless-zone-zero-billy-kid (1)](https://github.com/xgalswees/xgalswees/assets/166125649/8c6d7108-2920-4153-b83d-b4d605836e19)
+![zenless-zone-zero (1)](https://github.com/xgalswees/xgalswees/assets/166125649/f11df160-c10d-4b14-8a22-c54bd9b5cdc8)
+
 
 
 
