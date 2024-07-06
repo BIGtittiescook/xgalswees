@@ -2,12 +2,13 @@
 ㅤㅤㅤㅤㅤㅤ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/84b163d7-c652-4982-9b42-fdc22271a94c)**genshin uid: 741630803**ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/84b163d7-c652-4982-9b42-fdc22271a94c)**hsr uid: 700655246**
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/84b163d7-c652-4982-9b42-fdc22271a94c)**zzz uid: 1500623267**  
 ㅤ![dae36a74337de05e249ce5afcec907c1](https://github.com/xgalswees/xgalswees/assets/166125649/d6652c74-d19f-4163-963c-e7fd772a8635)
 
 
 
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/84b163d7-c652-4982-9b42-fdc22271a94c)**genshin uid: 741630803**ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/84b163d7-c652-4982-9b42-fdc22271a94c)**hsr uid: 700655246**
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/84b163d7-c652-4982-9b42-fdc22271a94c)**zzz uid: 1500623267**  
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ+； ˖ , ,‎ `фандомы за которые шарю:`
