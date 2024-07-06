@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![c0b824e8a635ffe2025311450bc6b64e](https://github.com/xgalswees/xgalswees/assets/166125649/ce80d11c-1935-4ed7-b610-6fccdcc52913)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![dae36a74337de05e249ce5afcec907c1 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/928f2789-cf56-4624-b854-f3ca94f9f93a)
 ㅤㅤㅤㅤㅤㅤ ㅤ
 ![wow-comic](https://github.com/xgalswees/xgalswees/assets/166125649/42c2020f-c242-4356-b4b1-02761550d5a2)![9256164d0b21fb0512c354f9f3b27d67 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/f74d432b-12db-44b5-910b-71504bd9df2f)
   .° ༘🎧⋆🖇₊˚ෆ +； ˖ , ,‎ `фандомы за которые шарю:`
@@ -31,4 +31,4 @@
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ***люблю алену!***
    ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ        ㅤ    ㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ ㅤㅤㅤ       ㅤㅤㅤ ㅤㅤㅤ       ㅤㅤㅤ ㅤㅤㅤ       ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ![Скриншот 13 06 24_02 47 32](https://github.com/xgalswees/xgalswees/assets/166125649/a0ecb26e-9631-47f9-9645-dee1531134fd)
 
-ㅤㅤㅤㅤㅤㅤㅤ ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤㅤㅤㅤㅤㅤㅤ![aesthetic-anime](https://github.com/xgalswees/xgalswees/assets/166125649/e075a335-54bc-4f95-a260-902c0f72ca8d)ㅤㅤㅤㅤㅤㅤㅤ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![c0b824e8a635ffe2025311450bc6b64e](https://github.com/xgalswees/xgalswees/assets/166125649/ce80d11c-1935-4ed7-b610-6fccdcc52913)
