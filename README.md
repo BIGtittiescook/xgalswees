@@ -7,7 +7,8 @@
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`omori, trigun stampede. yttd, death note, detroit: become human`+； ˖ , ,‎ㅤㅤㅤㅤㅤ  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ`she-ra, fran bow, ru twitch, until dawn, the quarry`
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ        ㅤ         ㅤ ㅤㅤㅤ        ㅤ         ㅤ         ㅤ        
-ㅤㅤㅤㅤㅤ![9256164d0b21fb0512c354f9f3b27d67](https://github.com/xgalswees/xgalswees/assets/166125649/fff22bd3-3672-4c5b-8c42-5ac48b73e783)
+ㅤㅤㅤㅤㅤ![dae36a74337de05e249ce5afcec907c1](https://github.com/xgalswees/xgalswees/assets/166125649/cabf8479-d587-4611-9a1c-238f43a01d88)
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
