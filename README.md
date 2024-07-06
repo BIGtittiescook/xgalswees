@@ -1,7 +1,8 @@
-ㅤㅤㅤㅤㅤㅤㅤ ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤㅤㅤㅤㅤㅤㅤ![c0b824e8a635ffe2025311450bc6b64e](https://github.com/xgalswees/xgalswees/assets/166125649/ce80d11c-1935-4ed7-b610-6fccdcc52913)
-ㅤㅤㅤㅤㅤㅤ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤ
+ㅤㅤㅤㅤ![c0b824e8a635ffe2025311450bc6b64e](https://github.com/xgalswees/xgalswees/assets/166125649/ce80d11c-1935-4ed7-b610-6fccdcc52913)
+ㅤㅤㅤㅤㅤㅤ) ㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![c40db678aa354ba91257f6258a1521e1](https://github.com/xgalswees/xgalswees/assets/166125649/b9441171-3727-4afc-bdfd-cdae1a34d417)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![58758-box-the-explosion-mushroom-comics-avoid-explode](https://github.com/xgalswees/xgalswees/assets/166125649/a3366cd1-f607-42e8-a767-5dd160b36972)
+
 ㅤ
 
 
