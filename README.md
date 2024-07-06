@@ -8,7 +8,7 @@
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`omori, trigun stampede. yttd, death note, detroit: become human`+； ˖ , ,‎ㅤㅤㅤㅤㅤ  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ`she-ra, fran bow, ru twitch, until dawn, the quarry`
 
-ㅤㅤ![58758-box-the-explosion-mushroom (1)](https://github.com/xgalswees/xgalswees/assets/166125649/1c416aed-3a9a-499e-9ad7-4f618287654b)![9256164d0b21fb0512c354f9f3b27d67 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/b27e4b35-0b78-4217-80fb-61f9de08b5d9)
+ㅤㅤ![9256164d0b21fb0512c354f9f3b27d67 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/b27e4b35-0b78-4217-80fb-61f9de08b5d9)![58758-box-the-explosion-mushroom (1)](https://github.com/xgalswees/xgalswees/assets/166125649/1c416aed-3a9a-499e-9ad7-4f618287654b)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ        ㅤ         ㅤ ㅤㅤㅤ        ㅤ         ㅤ         ㅤ        
