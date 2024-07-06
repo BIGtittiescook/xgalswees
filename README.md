@@ -1,6 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![dae36a74337de05e249ce5afcec907c1 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/928f2789-cf56-4624-b854-f3ca94f9f93a)
 ㅤㅤㅤㅤㅤㅤ ㅤ
-![wow-comic](https://github.com/xgalswees/xgalswees/assets/166125649/42c2020f-c242-4356-b4b1-02761550d5a2)![9256164d0b21fb0512c354f9f3b27d67 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/f74d432b-12db-44b5-910b-71504bd9df2f)
+(https://github.com/xgalswees/xgalswees/assets/166125649/f74d432b-12db-44b5-910b-71504bd9df2f)
   .° ༘🎧⋆🖇₊˚ෆ +； ˖ , ,‎ `фандомы за которые шарю:`
   ㅤㅤㅤㅤㅤㅤㅤㅤ
       ㅤ      ㅤ          ㅤ          ㅤ          ㅤ                ㅤ    
