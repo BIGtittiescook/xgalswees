@@ -6,9 +6,10 @@
       ㅤ                ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          `ace attorney, TAWOG, mob psycho, genshin impact. steven universe,`  ㅤㅤㅤㅤㅤ     ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ       ㅤ                ㅤ          ㅤ          ㅤ        `hsr, danganronpa, undertale, sally face, sk8, jujutsu kaisen,`
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`omori, trigun stampede. yttd, death note, detroit: become human`+； ˖ , ,‎ㅤㅤㅤㅤㅤ  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ`she-ra, fran bow, ru twitch, until dawn, the quarry`
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ        ㅤ         ㅤ ㅤㅤㅤ        ㅤ         ㅤ         ㅤ        ![comic-text-crack](https://github.com/xgalswees/xgalswees/assets/166125649/001b41da-dd0b-4ced-a9d6-f20e32ae7ea2)
-ㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ        ㅤ         ㅤ ㅤㅤㅤ        ㅤ         ㅤ         ㅤ        
+ㅤㅤㅤㅤㅤ![9256164d0b21fb0512c354f9f3b27d67](https://github.com/xgalswees/xgalswees/assets/166125649/fff22bd3-3672-4c5b-8c42-5ac48b73e783)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤ![58758-box-the-explosion-mushroom-comics-avoid-explode](https://github.com/xgalswees/xgalswees/assets/166125649/a3366cd1-f607-42e8-a767-5dd160b36972)
 
