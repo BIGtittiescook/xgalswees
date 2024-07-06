@@ -11,6 +11,7 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+![58758-box-the-explosion-mushroom](https://github.com/xgalswees/xgalswees/assets/166125649/b2395fad-e8e1-43ee-acf0-91f9361959c5)
 
 ㅤ![58758-box-the-explosion-mushroom-comics-avoid-explode](https://github.com/xgalswees/xgalswees/assets/166125649/a3366cd1-f607-42e8-a767-5dd160b36972)
 
