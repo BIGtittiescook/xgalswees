@@ -1,7 +1,8 @@
 ㅤㅤㅤㅤ
-ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ![c0b824e8a635ffe2025311450bc6b64e](https://github.com/xgalswees/xgalswees/assets/166125649/ce80d11c-1935-4ed7-b610-6fccdcc52913)
+ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![c0b824e8a635ffe2025311450bc6b64e](https://github.com/xgalswees/xgalswees/assets/166125649/ce80d11c-1935-4ed7-b610-6fccdcc52913)
 ![wow-comic](https://github.com/xgalswees/xgalswees/assets/166125649/b0d6a5e5-e78f-4792-9381-a2b44cfc4320) 
-ㅤㅤㅤㅤㅤㅤ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/4327e9b4-cc2c-4afe-b87c-c5db1f290156) ㅤ
+ㅤㅤㅤㅤㅤㅤ ㅤ![comic-text-oops](https://github.com/xgalswees/xgalswees/assets/166125649/adf0b44a-70b2-48ea-ad1b-91233911b811)
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/84b163d7-c652-4982-9b42-fdc22271a94c)**genshin uid: 741630803**ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![rainbow (1)](https://github.com/xgalswees/xgalswees/assets/166125649/84b163d7-c652-4982-9b42-fdc22271a94c)**hsr uid: 700655246**
