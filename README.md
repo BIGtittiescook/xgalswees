@@ -10,7 +10,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ`she-ra, fran bow, ru twitch, until dawn, the quarry`
 
 
-![5a105381eed609b127ec423c337f64e3 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/dfaf961b-4f8e-4e35-bd0f-cd028fe8c2d3)
+
 
 
 
