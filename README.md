@@ -1,8 +1,8 @@
 ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ![c0b824e8a635ffe2025311450bc6b64e](https://github.com/xgalswees/xgalswees/assets/166125649/e32fb0db-5e2d-4223-8e90-16437784d6cc)
 
-<p align="center">
-![comic-text-crack](https://github.com/xgalswees/xgalswees/assets/166125649/d9fd1574-0fb8-477a-8b50-8bf142c5bea5) />
-</p>
+
+![comic-text-crack](https://github.com/xgalswees/xgalswees/assets/166125649/d9fd1574-0fb8-477a-8b50-8bf142c5bea5)
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**genshin uid: 741630803**ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
 ㅤㅤㅤㅤㅤ**hsr uid: 700655246**
