@@ -29,8 +29,9 @@
 
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![dae36a74337de05e249ce5afcec907c1 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/f463ec63-9b40-49a1-932e-fc83aac2b3a7)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![a915468660807058f3e141b23e1944cf](https://github.com/xgalswees/xgalswees/assets/166125649/ab99d614-8383-4b0d-81c6-be0db08aad3a)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ `⸜(｡˃ ᵕ ˂ )⸝♡`
  
