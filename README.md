@@ -8,7 +8,8 @@
       ㅤ                ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          `ace attorney, TAWOG, mob psycho, genshin impact. steven universe,`  ㅤㅤㅤㅤㅤ     ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ          ㅤ                ㅤ          ㅤ          ㅤ          ㅤ       ㅤ                ㅤ          ㅤ          ㅤ        `hsr, danganronpa, undertale, sally face, sk8, jujutsu kaisen,`
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`omori, trigun stampede. yttd, death note, detroit: become human`+； ˖ , ,‎ㅤㅤㅤㅤㅤ  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤㅤㅤ       ㅤㅤㅤ`she-ra, fran bow, ru twitch, until dawn, the quarry`
-![5a105381eed609b127ec423c337f64e3](https://github.com/xgalswees/xgalswees/assets/166125649/dc0e935d-4619-47f9-8156-622a26a6e766)
+![5a105381eed609b127ec423c337f64e3 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/fd5771bf-ac35-4198-b89e-a217d8c4876a)
+
 
 
 ㅤㅤ![9256164d0b21fb0512c354f9f3b27d67 (1)](https://github.com/xgalswees/xgalswees/assets/166125649/b27e4b35-0b78-4217-80fb-61f9de08b5d9)![58758-box-the-explosion-mushroom (1)](https://github.com/xgalswees/xgalswees/assets/166125649/1c416aed-3a9a-499e-9ad7-4f618287654b)
