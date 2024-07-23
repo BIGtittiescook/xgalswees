@@ -21,6 +21,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ        ㅤ         ㅤ ㅤㅤㅤ        ㅤ         ㅤ         ㅤ       ㅤㅤㅤㅤ
 ![zenless-zone-zero (1)](https://github.com/xgalswees/xgalswees/assets/166125649/f11df160-c10d-4b14-8a22-c54bd9b5cdc8)
 
+![image](https://github.com/user-attachments/assets/cfef7ed0-074a-47ab-b898-25da0d5861a6)
 
 
 
